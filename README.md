@@ -3,7 +3,7 @@
 In this repository there will be  code from my videos from youtube at: https://www.youtube.com/channel/UCea_V2mRdsy7MQcsJVHcOyg
 
 If you can, 👍 🗨️  my video & subscribe. 
-Also follow me on Instagram at @dev2web_pp .
+Also follow me on Instagram at @dev2web_ .
 
 You can reach me there, and also by email: dev2webpp@gmail.com.
 
